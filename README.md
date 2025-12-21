@@ -1,1 +1,0 @@
-Yo gurt cool sigma
